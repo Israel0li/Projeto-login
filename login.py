@@ -1,0 +1,1 @@
+Aprenda uma linguagem de programação para saber o que fazer com esses arquivos.
